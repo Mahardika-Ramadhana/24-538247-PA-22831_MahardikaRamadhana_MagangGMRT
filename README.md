@@ -1,1 +1,2 @@
-# 24-538247-PA-22831_MahardikaRamadhana_MagangGMRT
+Nama : Mahardika Ramadhana
+NIM  : 24/538247/PA/22831
